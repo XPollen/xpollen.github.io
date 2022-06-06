@@ -1,4 +1,3 @@
-## X-Pollen
+Say **NO** to pollen allergies.
 
-Say NO to pollen allergies.
-Coming soon
+Coming soon...
